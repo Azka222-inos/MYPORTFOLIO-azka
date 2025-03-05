@@ -1,0 +1,2 @@
+# MYPORTFOLIO-azka
+LATIHAN
